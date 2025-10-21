@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Luan Santos
+# 🎃 Luan Santos
 
 **`Desenvolvedor FullStack`**
 
